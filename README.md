@@ -1,3 +1,5 @@
+##About
+
 Analytical, diligent Cybersecurity Specialist with a passion for aligning security architecture with security standards and operational goals. Diversely experienced with a background in design, sales, marketing and management. 
 
 Professional approach to streamlining client services and pinpointing global system security solutions. Adept at adjusting work pace to meet evolving client needs and deadlines. Prepared to excel at solving complex problems. An effective communicator and team player who is driven to provide effective solutions to further grow any business. 
