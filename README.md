@@ -1,4 +1,4 @@
-##About
+### About
 
 Analytical, diligent Cybersecurity Specialist with a passion for aligning security architecture with security standards and operational goals. Diversely experienced with a background in design, sales, marketing and management. 
 
